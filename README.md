@@ -22,6 +22,7 @@ CAPTURAS IMG
 ![unknown (7)](https://user-images.githubusercontent.com/45345955/151704715-e6a58027-283f-4845-ac4e-4f1d1c51da25.png)
 ![unknown (9)](https://user-images.githubusercontent.com/45345955/151704719-2e8e2ea4-33e5-4163-a9f3-c1340f13a7d5.png)
 ![unknown (8)](https://user-images.githubusercontent.com/45345955/151704724-a62561e3-0d34-4401-a6b1-9363a80268f4.png)
+![unknown (15)](https://user-images.githubusercontent.com/45345955/152372351-4d276388-f6ca-4797-92dd-9d112af76e7a.png)
 
 ------------------------------------------------
 
